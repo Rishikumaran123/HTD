@@ -72,4 +72,15 @@ For any inquiries or issues, please contact [email@example.com](kroopeshm@gmail.
 
 Feel free to suggest any other features or improvements you'd like to see in this project!
 
+![image](https://github.com/user-attachments/assets/9fb25270-5553-4eb6-88ad-2ad7b757b0bd)
+
+![image](https://github.com/user-attachments/assets/bbcea584-fe26-48f7-93bc-0a4b13e27815)
+
+![image](https://github.com/user-attachments/assets/7ed959f3-6872-4f5f-9ef5-7cb7ac1151f2)
+
+
+
+
+
+
 
